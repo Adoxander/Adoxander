@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Adoxander
+- 👀 I’m interested in football
+- 🌱 I’m currently learning python
+- 📫 How to reach me ^ adilbek.zhangaskiyev@gmail.com
